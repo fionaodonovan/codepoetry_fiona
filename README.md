@@ -31,3 +31,5 @@ I have no poetry to add so here's a random change! Nice original work here
 HELLO IAN :)
 
 Hello Fiona! How long until people just use this as aversion of MSN messenger that looks like actual work? :-D
+
+haha it doesn't even have decent emojis!
