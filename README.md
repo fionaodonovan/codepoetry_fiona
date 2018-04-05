@@ -26,6 +26,8 @@ Surely the Second Coming is at hand.
 
 A local change that I will commit
 
-I have no poetry to add so here's a random change! Nice original work here 
+I have no poetry to add so here's a random change! Nice original work here
 
 HELLO IAN :)
+
+Hello Fiona! How long until people just use this as aversion of MSN messenger that looks like actual work? :-D
