@@ -34,4 +34,4 @@ Hello Fiona! How long until people just use this as aversion of MSN messenger th
 
 haha it doesn't even have decent emojis!
 
-1 step forward, steps backward! 
+1 step forward, 2 steps backward! 
