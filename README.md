@@ -19,3 +19,7 @@ The ceremony of innocence is drowned;
 we're cooking with has (online)
 
 and now local changes!
+
+Surely some revelation is at hand;
+
+Surely the Second Coming is at hand.
